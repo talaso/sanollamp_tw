@@ -1,3 +1,4 @@
 # 三國神燈（台服版）
-程式下載地址：https://we.tl/t-YQQ7wnBOZC
+更新日期：<font color="#00dd00">2023-04-06</font><br>
+程式下載地址：https://pixeldrain.com/u/N1cV4zC9 <br>
 使用說明下載：
