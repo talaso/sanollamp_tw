@@ -2,4 +2,4 @@
 提示：神燈不存在其他任何宣傳網站或論壇，謹防電信詐騙<br>
 版本號：2.15.5.1<br>
 更新日期：<font color="#00dd00">2023-08-31</font><br>
-[程式下載](https://github.com/talaso/sgsd/) [使用說明下載](https://pixeldrain.com/u/rQcYUYW5)<br>
+[程式下載](https://pixeldrain.com/u/xKTi9W1a) [使用說明下載](https://pixeldrain.com/u/rQcYUYW5)<br>
